@@ -1,1 +1,0 @@
-# Internpe-minor-Task-1
